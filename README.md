@@ -1,1 +1,1 @@
-<img width=500" height="500" alt="Untitled29_20260618200558" src="https://64.media.tumblr.com/69e18bf7c8fefa9ac890db2c0a4d6ac0/c46de16c1bf12576-4c/s400x600/106fc83a7aeceb948bc0f748927c48ea94a0a03f.jpg" />
+<img width=400" height="400" alt="Untitled29_20260618200558" src="https://64.media.tumblr.com/69e18bf7c8fefa9ac890db2c0a4d6ac0/c46de16c1bf12576-4c/s400x600/106fc83a7aeceb948bc0f748927c48ea94a0a03f.jpg" />
